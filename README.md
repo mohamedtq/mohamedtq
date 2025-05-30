@@ -35,5 +35,5 @@
 ### 📬 Contact Me
 
 - 📫 Email: mohamed.tq@outlook.com
-- 💼 LinkedIn: [Mohamed Thaufeeq](https://linkedin.com/in/mohamed.tq)
+- 💼 LinkedIn: [Mohamed Thaufeeq](https://linkedin.com/in/mohamedtq)
 
